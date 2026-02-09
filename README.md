@@ -1,5 +1,5 @@
 # Logo Design
-This Repository shows all my graphic designing Projects
+The two main logos which I have designed using Canva.
 # Bloom Aura Studio
 Bloom Aura Studio is a beauty and self-care brand that offers skincare, makeup services, and wellness treatments.
 The brand represents elegance, calmness, confidence, and natural beauty.
